@@ -1,2 +1,0 @@
-# note
-The mind maps
